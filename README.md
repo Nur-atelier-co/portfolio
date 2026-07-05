@@ -124,7 +124,7 @@ I'm always interested in collaborating with founders, startups, and growing busi
 
 📧 **Email**
 
-noorainhaq@09
+noorainhaq09@gmail.com
 
 ---
 
